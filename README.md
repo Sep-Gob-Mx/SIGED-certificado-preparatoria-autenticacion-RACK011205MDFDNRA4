@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-RACK011205MDFDNRA4
+RACK011205MDFDNRA4
